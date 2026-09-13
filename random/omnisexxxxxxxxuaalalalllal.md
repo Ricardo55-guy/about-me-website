@@ -1,3 +1,6 @@
+<img width="735" height="505" alt="Omnisexual" src="https://github.com/user-attachments/assets/3121cca3-c40a-4a03-a2ec-c3dd6cd607f7" />
+
+
 Omnisexuality is a sexual orientation where someone is attracted to all genders with gender having a factor in attraction. Although some may use it as a synonym for pansexuality, others see the two identities as distinct from one another.
 Etymology and definition
 
