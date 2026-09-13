@@ -25,4 +25,5 @@ i am a weidlak i guess
 i love linux i love linux i love linux
 i also rlly like custom romming
 
-<img width="2048" height="2048" alt="Untitled9_20260913162057" src="https://github.com/user-attachments/assets/e73ce2d1-82bb-4bd8-971a-e6b5f10e5e27" />
+<img width="2048" height="2048" alt="Untitled9_20260913162610" src="https://github.com/user-attachments/assets/81a29bb1-bda0-41de-8611-c3be80773d1c" />
+
