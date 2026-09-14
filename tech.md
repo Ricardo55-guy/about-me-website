@@ -1,6 +1,6 @@
 # TECH TOUR!!!! 
 
-<img width="3264" height="2048" alt="IMG_20260914_174946" src="https://github.com/user-attachments/assets/cb4d9ac0-ac6d-40cb-903f-d0ba28f69810" />
+<img width="303" height="190" alt="IMG_20260914_174946" src="https://github.com/user-attachments/assets/cb4d9ac0-ac6d-40cb-903f-d0ba28f69810" />
 
 this is my tech :>
 
