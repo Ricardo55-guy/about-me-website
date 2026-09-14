@@ -6,6 +6,8 @@
 
 sup, it's me ricardo 
 
+<img width="800" height="318" alt="Recording_2026-09-14-102238-ezgif com-video-to-gif-converter" src="https://github.com/user-attachments/assets/2ff8e009-ed12-495b-8da1-883086902755" />
+
 i like linux, tech, regretevator, and rollercosters
 this is my website, running on werc (as you can see in the bottom right corner lolol)
 
