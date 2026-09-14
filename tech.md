@@ -8,4 +8,4 @@ left - hp elitebook 840 g8 on artix linux, my objectum bf
 
 right - shitty 2019 debian lenovo ideapad, dipshit
 
-on the thinkpad - 2009 idog dance
+on the ideapad - 2009 idog dance
